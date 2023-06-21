@@ -1,3 +1,3 @@
 # StudyLamp
-请移步链接：https://pan.baidu.com/s/10hzhaiaGIp_sVmPwaTiliA?pwd=tg6g 
-提取码：tg6g
+请移步百度网盘：链接：https://pan.baidu.com/s/1wlMqI7-IW0PsF0yolCQ4WQ?pwd=2s1r 
+提取码：2s1r
